@@ -11,9 +11,9 @@ Read the complete revised book free:
 
 ![Jesus New OS book cover](Jesus-New-OS-cover.jpg)
 
-Jesus New OS: Christ Mind OS invites you to build a mental operating system rooted in Christ. Christian Cassarly turns spiritual reflection into an OS experience: recognize patterns that hold you back, clear out Christless thinking, and reboot toward faith, purpose, and disciplined leadership. Through practical “downloads” and the Golden Keys, the book offers a vivid framework for renewing how you think and live. Read the complete revised edition free, with clickable chapters in the PDF and an EPUB for ebook readers.
+OS architect Christian Cassarly takes you on a self-development journey through the language of an operating system. First, set up your mental OS with Christ at its center. Then put it through a practice run: recognize spiritual “viruses” and “malware,” test your defenses, and build a firewall for your thought life. Finally, upgrade into your new version—carrying renewed faith, purpose, and leadership into daily life. Released alongside Cassarly’s JESUS DASH operating-system project, Jesus New OS: Christ Mind OS connects that inner journey with the software he architected. Explore the actual operating-system project at JesusDash.com and JesusNew.com. Read the complete book free, with clickable PDF chapters and an EPUB edition.
 
-Explore the author’s technology and wider project at [JesusNew.com](https://jesusnew.com).
+Explore [JESUS DASH](https://jesusdash.com/) and [Jesus New OS](https://jesusnew.com/).
 
 ## Edition and rights
 
