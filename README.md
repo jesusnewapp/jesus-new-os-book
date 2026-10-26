@@ -11,7 +11,7 @@ Read the complete revised book free:
 
 ![Jesus New OS book cover](Jesus-New-OS-cover.jpg)
 
-Jesus New OS: Christ Mind OS brings together three earlier works into one continuous literary and spiritual reading experience, spanning Christian Cassarly’s New York years through the present. This personal book connects faith, purpose, and transformation through the language of an operating system.
+Jesus New OS: Christ Mind OS invites you to build a mental operating system rooted in Christ. Christian Cassarly turns spiritual reflection into an OS experience: recognize patterns that hold you back, clear out Christless thinking, and reboot toward faith, purpose, and disciplined leadership. Through practical “downloads” and the Golden Keys, the book offers a vivid framework for renewing how you think and live. Read the complete revised edition free, with clickable chapters in the PDF and an EPUB for ebook readers.
 
 Explore the author’s technology and wider project at [JesusNew.com](https://jesusnew.com).
 
